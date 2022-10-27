@@ -1,5 +1,5 @@
 # [Aristia(Edit)+Trail](https://b.catgirlsare.sexy/BkRcoKLc7PSO.osk)
-![image](https://user-images.githubusercontent.com/113880424/198301797-c315aac4-00c5-45d7-acf9-6093e6895373.png
+![image](https://user-images.githubusercontent.com/113880424/198301797-c315aac4-00c5-45d7-acf9-6093e6895373.png)
 
 # [Baconboi](https://b.catgirlsare.sexy/lWTfn2kg.osk)
 ![image](https://cdn1.osuck.net/screenshots/bf4260e9ed071695ed55eab8bc9b0542.webp)
