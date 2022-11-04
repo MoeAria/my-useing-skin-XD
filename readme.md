@@ -19,7 +19,7 @@
 # [tekkito Aristia](https://7137nel.s-ul.eu/73r2AQ5V.osk)
 ![image](https://cdn.discordapp.com/attachments/1018750967023407174/1038068257539752036/screenshot004.png)
 
-# [tekkito Red](https://ariaisdumb.s-ul.eu/zTDs3vBO)
+# [tekkito Red](https://ariaisdumb.s-ul.eu/NIV4Ay4E)
 ![image](https://cdn.discordapp.com/attachments/1018750967023407174/1038068774995238932/screenshot005.png)
 
 # [TP Cool Hitsounds](https://b.catgirlsare.sexy/xDxf8KtxWgSb.osk)
