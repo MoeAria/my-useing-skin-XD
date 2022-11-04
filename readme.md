@@ -1,4 +1,4 @@
-# [Aristia(Edit)+Trail](https://puu.sh/CPqX5/ade6682fc9.osk)
+# [Aristia(Edit)+Trail](https://ariaisdumb.s-ul.eu/FSAD8YBb)
 ![image](https://user-images.githubusercontent.com/113880424/198301797-c315aac4-00c5-45d7-acf9-6093e6895373.png)
 
 # [Baconboi](https://b.catgirlsare.sexy/lWTfn2kg.osk)
