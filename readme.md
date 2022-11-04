@@ -1,4 +1,4 @@
-# [Aristia(Edit)+Trail](https://b.catgirlsare.sexy/BkRcoKLc7PSO.osk)
+# [Aristia(Edit)+Trail](https://puu.sh/CPqX5/ade6682fc9.osk)
 ![image](https://user-images.githubusercontent.com/113880424/198301797-c315aac4-00c5-45d7-acf9-6093e6895373.png)
 
 # [Baconboi](https://b.catgirlsare.sexy/lWTfn2kg.osk)
@@ -7,7 +7,7 @@
 # [MonkoEdit(Rainbow)](https://rektygon.s-ul.eu/LpO3ZXOQ)
 ![image](https://i.imgur.com/6RpAgPr.png)
 
-# [MonkoEdit](https://b.catgirlsare.sexy/VzOxtPp5.osk)
+# [MonkoEdit](https://ariaisdumb.s-ul.eu/5ZebHUyE)
 ![image](https://cdn1.osuck.net/screenshots/ab358180380acd6b11f7def15b844b20.webp)
 
 # [Yaong](https://circle-people.com/wp-content/Skins/Yaong/Yaong%202017-08-10.osk)
@@ -19,7 +19,7 @@
 # [tekkito Aristia](https://7137nel.s-ul.eu/73r2AQ5V.osk)
 ![image](https://cdn.discordapp.com/attachments/1018750967023407174/1038068257539752036/screenshot004.png)
 
-# [tekkito Red](https://drive.google.com/file/d/1wO4V0XbdD1HxbIGKUN-EklOkIrPLkfAK/)
+# [tekkito Red](https://ariaisdumb.s-ul.eu/zTDs3vBO)
 ![image](https://cdn.discordapp.com/attachments/1018750967023407174/1038068774995238932/screenshot005.png)
 
 # [TP Cool Hitsounds](https://b.catgirlsare.sexy/xDxf8KtxWgSb.osk)
