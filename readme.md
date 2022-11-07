@@ -1,4 +1,4 @@
-#Plz check this epic project(https://github.com/baron6060/hard-to-find-osu-skins/)
+# [Plz check this epic project](https://github.com/baron6060/hard-to-find-osu-skins/)
 
 # [Aristia(Edit)+Trail](https://ariaisdumb.s-ul.eu/FSAD8YBb)
 ![image](https://user-images.githubusercontent.com/113880424/198301797-c315aac4-00c5-45d7-acf9-6093e6895373.png)
